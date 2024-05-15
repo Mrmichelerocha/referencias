@@ -1,7 +1,9 @@
 ### revista 2 - finjornal
 
 https://br.pinterest.com/pin/97320041938752258/
+
 https://br.pinterest.com/pin/2744449764011106/
+
 https://br.pinterest.com/pin/7529524370682808/
 
 
