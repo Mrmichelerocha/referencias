@@ -6,6 +6,10 @@ https://br.pinterest.com/pin/2744449764011106/
 
 https://br.pinterest.com/pin/7529524370682808/
 
+https://br.pinterest.com/pin/70437488264540/
+
+https://br.pinterest.com/pin/13792342602434894/
+
 
 ### revista 1 - finjornal
 
