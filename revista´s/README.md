@@ -32,6 +32,8 @@ https://br.pinterest.com/pin/4081455905772170/
 
 https://br.pinterest.com/pin/12103492741419319/
 
+https://br.pinterest.com/pin/5418462045438686/
+
 ### revista 1 - finjornal
 
 esse aqui nem foi eu que perdi, eu deixai na revista mesmo, ai depois que eu lancei a revista eu tive a brilhante ideia de fazer isso! mals 😅😅
