@@ -1,3 +1,12 @@
+### revista 3 - finjornal
+
+https://br.pinterest.com/pin/641833384426968501/
+
+https://br.pinterest.com/pin/25473554136235138/
+
+https://br.pinterest.com/pin/7951736834894398/
+
+
 ### revista 2 - finjornal
 
 https://br.pinterest.com/pin/97320041938752258/
