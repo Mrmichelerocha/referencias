@@ -18,6 +18,8 @@ https://br.pinterest.com/pin/1618549862588372/
 
 https://br.pinterest.com/pin/25684660370223385/
 
+https://br.pinterest.com/pin/274790014759237144/
+
 ### revista 2 - finjornal
 
 https://br.pinterest.com/pin/97320041938752258/
