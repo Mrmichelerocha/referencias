@@ -1,3 +1,5 @@
+## post 8 - fin jornal
+https://br.pinterest.com/pin/7248049394751991/
 ## post 7 - fin jornal
 https://br.pinterest.com/pin/392235448814710575/
 ## post 6 - fin jornal
